@@ -1,1 +1,1 @@
-![image](https://github.com/Lcandres16/TAREAS-2024/assets/116099973/57f7d502-40c0-482e-bc67-d4d6a4e6f8eb)
+![image](https://github.com/Lcandres16/TAREAS-2024/assets/116099973/e16263b1-b4d9-43c1-a691-bdec75a606cb)
